@@ -1,5 +1,5 @@
 Hi, I'm Harini S
- Electrical & Electronics Engineering Undergraduate | Final Year Student|SVCE- Srir Venkateswara College Of Engineering|
+ Electrical & Electronics Engineering Undergraduate | Final Year Student|SVCE- Sri Venkateswara College Of Engineering|
 
 I'm an Electrical & Electronics Engineering student interested in Semiconductor Technology, Nanotechnology, Electronics, and Embedded Systems.
 
